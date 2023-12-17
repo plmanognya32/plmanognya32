@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @plmanognya32
-- 👀 I’m interested in Music, Dance, Reading:)
 - 🌱 I’m currently learning Nothing, learning Nothing!
 - 📫 How to reach me- I am quite asocial but you can find me in quora as Manognya Peddinti!
 
